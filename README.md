@@ -7,3 +7,4 @@ I love this class!
 Just making changes
 
 vanilla
+IS the best
